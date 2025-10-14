@@ -19,3 +19,4 @@ The course was taught by **Dr. Lê Kim Hùng** and **MSc. Lê Minh Khánh Hội*
 
 ## 📬 Contact
 - **💌 Email:** 1410hhd@gmail.com  
+- **🔗 The lecture videos are recorded:** https://www.youtube.com/playlist?list=PLf1bnjPfhcx5HOewZ4Uf8YJEsXA2j9MCY
